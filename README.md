@@ -1,6 +1,6 @@
 ## Hello!! 
 
-<!P.S: I don't have any content on my YT channel, subscribing is optional!💚
+P.S: I don't have any content on my YT channel, subscribing is optional!💚
 
 (I would just appreciate the support tho!!💚)
 
